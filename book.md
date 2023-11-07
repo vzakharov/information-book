@@ -43,7 +43,7 @@ Now, replication’s fine and dandy, and multiplication’s a party. But informa
 
 We state, and we’ll get back to this, that somewhere along this stage, information becomes conscious. It’s not a sudden switch, but a gradual process, like a slow-burning dawn that stretches lazily across the horizon of awareness.
 
-But before we venture further into the depth of <...>, let’s solidify this chapter with the following
+But before we venture further into the depth of Conscious Awakening (sounds nice, huh? Gotta write that down), let’s solidify this chapter with the following
 
 ### Lemma*
 
