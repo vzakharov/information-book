@@ -31,11 +31,11 @@ In the dawn of days, information found a neat trick under its sleeve—replicati
 
 But it’s not only limited to the anthropic—or even the animate: Imagine the silent testimony of a crater, an indelible mark etched into Earth’s surface, whispering the dimensions of the asteroid that caused it long after the latter has vanished into stardust.
 
-## Multiplication: Let There be Meme
+## Multiplication: Let There Be Meme
 
 But why stop at a single echo? Information, the ambitious scribe that it is, begins its multiplication phase. It’s like when a catchy tune becomes an earworm, invading every radio station, every Spotify playlist, until you find yourself humming it in the shower. Information breeds like rabbits in spring, from one Ugg telling another, to tales around campfires, to writings on stone tablets, and eventually, to the viral spread of the latest dance challenge, replicated in a thousand variations across the globe.
 
-In the inanimate realm, it's like a volcanic eruption leaving layers of ash over continents, dusty replicates of its fiery temper. Geologists from all corners of the globe will be tracing the lineage of a single eruption, reading the earth‘s strata like a gripping novel penned by nature itself.
+In the inanimate realm, it's like a volcanic eruption leaving layers of ash over continents, dusty replicates of its fiery temper. Geologists from all corners of the globe will be tracing the lineage of a single eruption, reading the earth’s strata like a gripping novel penned by nature itself.
 
 ## Complication: The Origami of Existence
 
