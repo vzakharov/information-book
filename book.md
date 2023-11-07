@@ -1,5 +1,5 @@
-Hidden in Plain Byte, or the Cosmic Tango of Information and Entropy
-=======================================================================
+Hidden in Plain Byte: A Tale of Conscious Information
+=====================================================
 
 # Preface
 
