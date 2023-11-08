@@ -39,7 +39,7 @@ In the inanimate realm, it's like a volcanic eruption leaving layers of ash over
 
 ## Complication: The Origami of Existence
 
-Now, replication’s fine and dandy, and multiplication’s a party. But information is an artist, a composer of complexity. It’s not content with simple tunes; it orchestrates symphonies. Complication is when “fire hot” becomes thermodynamics, and “rock fall” becomes gravity. It’s the upgrade from folklore to high-definition, surround-sound, narrated-by-Morgan-Freeman documentaries of knowledge. Information, in its quest for immortality, becomes intricate, nuanced, and so, so very deep.
+Now, replication’s fine and dandy, and multiplication’s a party. But information is an artist, a composer of complexity. It’s not content with simple tunes; it orchestrates symphonies. Complication is when “fire hot” becomes thermodynamics, and “rock fall” becomes gravity. Information, in its quest for immortality, becomes intricate, nuanced, and so, so very deep.
 
 We state, and we’ll get back to this, that somewhere along this stage, information becomes conscious. It’s not a sudden switch, but a gradual process, like a slow-burning dawn that stretches lazily across the horizon of awareness.
 
@@ -50,7 +50,3 @@ But before we venture further into the depth of Conscious Awakening (sounds nice
 > Let it be stated, then, that information, in its unyielding quest to outwit the shadow of entropy, moves through a triad of evolution—Replication is its heartbeat, enduring through time; Multiplication is its breath, spreading far and wide; Complication is its soul, enriching and expanding with every beat and breath. This is the crescendo from a lone whisper in the void to a chorus that fills the expanse of existence.
 
 [*] I know the term “lemma” is a misnomer here, but let’s admit it, it has a nice, scholarly ring to it. It’s the kind of term that makes you want to stroke your beard thoughtfully, even if you don’t have one. So, while it might not fit the mathematical bill, in the ledger of our cosmic journey, we consider it a poetic license well spent.
-
-Now let’s consider an example of replication, multiplication, and complication that we’re all familiar with:
-
-# Mythology, religion and science
